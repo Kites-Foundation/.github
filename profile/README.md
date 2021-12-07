@@ -1,4 +1,4 @@
-![Kites]()
+![Kites](https://github.com/Kites-Foundation/.github/blob/main/profile/assets/kites.png?raw=true)
 
 #To the SKY and BEYOND
 
