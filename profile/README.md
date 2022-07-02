@@ -1,5 +1,5 @@
-# The Next Big Adventure is Here
+![Kites](https://github.com/Kites-Foundation/.github/blob/main/profile/assets/kites.png?raw=true)
 
-### We are at a point in time where we are faced with more challenges and obstacles than any other. Each and every step we take today in the cyber world - knowingly or unknowingly, is recorded or is being monitored. The so-called "visible" Internet is just a tip of the iceberg .
+# To the SKY and BEYOND
 
-### The mysteriously deep dark web is a treasure chest waiting to be unraveled! So, join your hands with Kerala Police Cyberdome to drain down deep into and demystify the darker sides of the internet. 
+### A team of young zealots working towards transforming this country through 'Youth-Led' development and collective effort. # The Next Big Adventure is Here
